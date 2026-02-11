@@ -51,5 +51,6 @@ Strong communicator with excellent documentation skills and a customer-focused a
 ## Location
 - UK-based
 - Actively applying for IT Support roles in Canada
-- Open to relocation and IEC opportunities# IT-Support-Portfolio
-IT Support portfolio for Canada
+- IEC Work Permit Approved - Authorised to work in 
+canada upon arrival (Dec 2026) 
+- IT Support portfolio for Canada
